@@ -22,7 +22,7 @@
 
 ## [5. tekkito2](https://cdn.discordapp.com/attachments/1125160099263025353/1126184720212963449/tekkito2.osk)
 
-![](https://osu.ppy.sh/ss/18686452/dcaa)
+![](https://i.imgur.com/sh3zYPn.jpeg)
 
 ## [6. kanoharadav3_clear (tekkito interface)](https://cdn.discordapp.com/attachments/1125160099263025353/1126184720212963449/tekkito2.osk)
 
