@@ -6,7 +6,7 @@
 
 ## [1. DDDX 15 DT Mix](https://mega.nz/file/zcwSBbiL#33h5hgaWOC80hEoGiC5AwvsuH6-gijg3IpqnY1j425A)
 
-![](https://sun9-18.userapi.com/impg/G6obTylJL_KeZn6BGNn1PpEZmGPVwFYgUN9aYQ/ISqzWFMKFWg.jpg?size=1920x1080&quality=96&sign=114e909f4ebe235510b37a4126a335b3&type=album)
+![](https://osu.ppy.sh/ss/18686440/bfe5)
 
 ## [2. -Neferpitou Aristia Edit](https://mega.nz/file/OZA1UbBZ#aybLqbYLzeNpU5AW-5_77ez1jzrFr2S_soX_6LhuQ38)
 
