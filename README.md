@@ -44,6 +44,10 @@
 
 ![](http://osu.ppy.sh/ss/18686483/bf74)
 
-## [11.mathi-whypan-instafade ](https://cdn.discordapp.com/attachments/1125160099263025353/1126184966577995867/mathi-whypan-instafade.osk)
+## [11. mathi-whypan-instafade ](https://cdn.discordapp.com/attachments/1125160099263025353/1126184966577995867/mathi-whypan-instafade.osk)
 
-![](/osu.ppy.sh/ss/18686487/b35a)
+![](http://osu.ppy.sh/ss/18686487/b35a)
+
+## [12. tekkitogamer](https://cdn.discordapp.com/attachments/1125160099263025353/1126185048853458974/tekkitogamer.osk)
+
+![](http://osu.ppy.sh/ss/18686498/69c2)
