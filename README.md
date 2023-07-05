@@ -51,3 +51,43 @@
 ## [12. tekkitogamer](https://cdn.discordapp.com/attachments/1125160099263025353/1126185048853458974/tekkitogamer.osk)
 
 ![](http://osu.ppy.sh/ss/18686498/69c2)
+
+## [13. tekkitmathi](https://cdn.discordapp.com/attachments/1125160099263025353/1126185092935585984/tekkitomathi.osk)
+
+![](http://osu.ppy.sh/ss/18686504/1aae)
+
+## [14. WATSAP](https://cdn.discordapp.com/attachments/1125160099263025353/1126185159964753962/WATSAP.osk)
+
+![](http://osu.ppy.sh/ss/18686505/aa97)
+
+## [15. Kyori_DT](https://cdn.discordapp.com/attachments/1125160099263025353/1126185528727973968/Kyori_DT.osk)
+
+![](http://osu.ppy.sh/ss/18686507/b8af)
+
+## [16. -Aesthetic_1.3.3](https://cdn.discordapp.com/attachments/1125160099263025353/1126185678930186300/-Aesthetic_1.3.3.osk)
+
+![](https://osu.ppy.sh/ss/18686508/6037)
+
+## [17. romandenys](https://cdn.discordapp.com/attachments/1125160099263025353/1126185752234045610/romandenys.osk)
+
+![](http://osu.ppy.sh/ss/18686517/2e4a)
+
+## [18. tekkitovaxeicookieziktotoeshe](https://cdn.discordapp.com/attachments/1125160099263025353/1126186187195961384/tekkitovaxeicookieziktotoeshe.osk)
+
+![](http://osu.ppy.sh/ss/18686520/d773)
+
+## [19. tekkitorafiswww](https://cdn.discordapp.com/attachments/1125160099263025353/1126186259912597626/tekkitorafiswww.osk)
+
+![](http://osu.ppy.sh/ss/18686522/2d77)
+
+## [20. RAFIS_RIGHT_VERSION](https://cdn.discordapp.com/attachments/1125160099263025353/1126186333837197413/RAFIS_RIGHT_VERSION.osk)
+
+![](http://osu.ppy.sh/ss/18686524/4d9a)
+
+## [22. xact](https://cdn.discordapp.com/attachments/1125160099263025353/1126186509540786187/xact.osk)
+
+![](http://osu.ppy.sh/ss/18686525/88c6f)
+
+## [21. meniwa_but_masynja](https://cdn.discordapp.com/attachments/1125160099263025353/1126187241350385784/meniwa_but_masynja.osk)
+
+![](http://osu.ppy.sh/ss/18686527/f1c4)
