@@ -34,4 +34,4 @@
 
 ## [8. JTB x Kano  Asuka Kurashina Edit](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
 
-![](http://osu.ppy.sh/ss/18686431/a70f)
+![](http://osu.ppy.sh/ss/18686434/9743)
