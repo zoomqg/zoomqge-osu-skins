@@ -40,3 +40,7 @@
 
 ![](https://osu.ppy.sh/ss/18686472/b500)
 
+## [8.gasha_singletap](https://cdn.discordapp.com/attachments/1125160099263025353/1126184817478860851/gasha_singletap.osk)
+
+![](http://osu.ppy.sh/ss/18686483/bf74)
+
