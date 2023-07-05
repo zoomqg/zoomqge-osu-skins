@@ -20,18 +20,18 @@
 
 ![](https://sun9-69.userapi.com/impg/n7yfu_3FRskm2SNkWhdb6JyaKqeLmdsYXg6nFA/u4PPWsEgCms.jpg?size=1920x1080&quality=96&sign=7c51556837b0b1e86b8e3cc01ab70bba&type=album)
 
-## [5. Tekkito 2](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [5. Tekkito 2](https://cdn.discordapp.com/attachments/1125160099263025353/1126184720212963449/tekkito2.osk)
 
 ![](https://sun9-74.userapi.com/impg/87Ktl8nuHOwu3e7kn43yTG1SdRQoQMj7PPrQWg/NOfLMNUgFY4.jpg?size=1920x1080&quality=96&sign=49c564afca42fce46c3efd7d5483ce9e&type=album)
 
-## [6. Kanoharada V3 Clear](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [6. Kanoharada V3 Clear](https://cdn.discordapp.com/attachments/1125160099263025353/1126184720212963449/tekkito2.osk)
 
 ![](https://sun9-46.userapi.com/impg/OhRSnLGwEqUAod7yECjRWRJ4ckSBcTNbtVG8Mw/qMJjK_a_-88.jpg?size=1920x1080&quality=96&sign=8db30a9afc67a04d65e2fe510bc57603&type=album)
 
-## [7. TekkitoVaxei DT](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [7. TekkitoVaxei DT](https://cdn.discordapp.com/attachments/1125160099263025353/1126184770834026536/tekkitovaxeidt.osk)
 
 ![](https://sun3-24.userapi.com/impg/3mA9WG667jIpJbE-788Z31DceYAiXFKnbBQkZA/XBqAoH1d5XY.jpg?size=1920x1080&quality=96&sign=d974992fa7e362590323075242d91ab2&type=album)
 
-## [8. JTB x Kano  Asuka Kurashina Edit](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [8. JTB x Kano  Asuka Kurashina Edit](https://cdn.discordapp.com/attachments/1125160099263025353/1126184800290623578/-_JTB_x_kano_Asuka_Kurashina_Edit.osk)
 
 ![](http://osu.ppy.sh/ss/18686434/9743)
