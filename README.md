@@ -86,7 +86,7 @@
 
 ## [21. xact](https://cdn.discordapp.com/attachments/1125160099263025353/1126186509540786187/xact.osk)
 
-![](http://osu.ppy.sh/ss/18686538/9d64)
+![](https://osu.ppy.sh/ss/18686544/9128)
 
 ## [22. meniwa_but_masynja](https://cdn.discordapp.com/attachments/1125160099263025353/1126187241350385784/meniwa_but_masynja.osk)
 
