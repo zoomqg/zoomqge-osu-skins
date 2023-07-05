@@ -2,8 +2,6 @@
 
 ## Здесь собраны все скины, которые использую я)
 
-## Twitch - https://www.twitch.tv/zoomqge
-
 ### создал - @molexxq, пишите в дискорд если нет какого-то скина
 
 ## [1. DDDX 15 DT Mix](https://mega.nz/file/zcwSBbiL#33h5hgaWOC80hEoGiC5AwvsuH6-gijg3IpqnY1j425A)
