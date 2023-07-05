@@ -33,3 +33,5 @@
 ![](https://sun3-24.userapi.com/impg/3mA9WG667jIpJbE-788Z31DceYAiXFKnbBQkZA/XBqAoH1d5XY.jpg?size=1920x1080&quality=96&sign=d974992fa7e362590323075242d91ab2&type=album)
 
 ## [8. JTB x Kano  Asuka Kurashina Edit](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+
+![](http://osu.ppy.sh/ss/18686431/a70f)
