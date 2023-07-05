@@ -52,7 +52,7 @@
 
 ![](http://osu.ppy.sh/ss/18686498/69c2)
 
-## [13. tekkitmathi](https://cdn.discordapp.com/attachments/1125160099263025353/1126185092935585984/tekkitomathi.osk)
+## [13. tekkitomathi](https://cdn.discordapp.com/attachments/1125160099263025353/1126185092935585984/tekkitomathi.osk)
 
 ![](http://osu.ppy.sh/ss/18686504/1aae)
 
