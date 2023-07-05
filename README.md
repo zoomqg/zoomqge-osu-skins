@@ -43,3 +43,7 @@
 ## [10. gasha_singletap](https://cdn.discordapp.com/attachments/1125160099263025353/1126184817478860851/gasha_singletap.osk)
 
 ![](http://osu.ppy.sh/ss/18686483/bf74)
+
+## [11.mathi-whypan-instafade ](https://cdn.discordapp.com/attachments/1125160099263025353/1126184966577995867/mathi-whypan-instafade.osk)
+
+![](/osu.ppy.sh/ss/18686487/b35a)
