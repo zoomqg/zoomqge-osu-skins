@@ -1,0 +1,2 @@
+# zoomqge-osu-skins
+вафли
