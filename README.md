@@ -50,7 +50,7 @@
 
 ## [12. tekkitogamer](https://cdn.discordapp.com/attachments/1125160099263025353/1126185048853458974/tekkitogamer.osk)
 
-![](http://osu.ppy.sh/ss/18686498/69c2)
+![](https://osu.ppy.sh/ss/18686593/4586)
 
 ## [13. tekkitomathi](https://cdn.discordapp.com/attachments/1125160099263025353/1126185092935585984/tekkitomathi.osk)
 
