@@ -10,7 +10,7 @@
 
 ## [2. -Neferpitou-Aristia_Edit](https://cdn.discordapp.com/attachments/1125160099263025353/1126184410077724833/-Neferpitou-Aristia_Edit.osk)
 
-![](https://osu.ppy.sh/ss/18686444/44dd)
+![](https://i.imgur.com/qAo5ons.jpeg)
 
 ## [3. -scylla_19.02.2022](https://cdn.discordapp.com/attachments/1125160099263025353/1126184496283263128/-__scylla_19.02.2022.osk)
 
