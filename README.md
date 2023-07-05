@@ -10,7 +10,7 @@
 
 ## [2. -Neferpitou Aristia Edit](https://mega.nz/file/OZA1UbBZ#aybLqbYLzeNpU5AW-5_77ez1jzrFr2S_soX_6LhuQ38)
 
-![](https://sun3-20.userapi.com/impg/PNrSMFwA4_EsLcABv2JE9skPRtRYIEg8QIx8nw/5w4SoXkuKY4.jpg?size=1920x1080&quality=96&sign=65fbf179be057ab70cbf0660ae704171&type=album)
+![](https://osu.ppy.sh/ss/18686444/44dd)
 
 ## [3. Scylla 19.02.2022](https://mega.nz/file/nIQUGS5K#vB3awsfe1dXshjgSVorIMJolTCuuEsDsvhouV3qaX5A)
 
