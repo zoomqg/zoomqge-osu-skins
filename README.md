@@ -1,4 +1,4 @@
-# ZoomQGe's skins
+# zoomqge's skins
 
 ## Здесь собраны все скины, которые использую я)
 
