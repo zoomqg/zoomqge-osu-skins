@@ -4,19 +4,19 @@
 
 ### создал - @molexxq, пишите в дискорд если нет какого-то скина
 
-## [1. DDDX 15 DT Mix](https://mega.nz/file/zcwSBbiL#33h5hgaWOC80hEoGiC5AwvsuH6-gijg3IpqnY1j425A)
+## [1. DDDX 15 DT Mix](https://cdn.discordapp.com/attachments/1125160099263025353/1126184222319706122/dddx15dt_mix.osk)
 
 ![](https://sun9-18.userapi.com/impg/G6obTylJL_KeZn6BGNn1PpEZmGPVwFYgUN9aYQ/ISqzWFMKFWg.jpg?size=1920x1080&quality=96&sign=114e909f4ebe235510b37a4126a335b3&type=album)
 
-## [2. -Neferpitou Aristia Edit](https://mega.nz/file/OZA1UbBZ#aybLqbYLzeNpU5AW-5_77ez1jzrFr2S_soX_6LhuQ38)
+## [2. -Neferpitou Aristia Edit](https://cdn.discordapp.com/attachments/1125160099263025353/1126184410077724833/-Neferpitou-Aristia_Edit.osk)
 
 ![](https://sun3-20.userapi.com/impg/PNrSMFwA4_EsLcABv2JE9skPRtRYIEg8QIx8nw/5w4SoXkuKY4.jpg?size=1920x1080&quality=96&sign=65fbf179be057ab70cbf0660ae704171&type=album)
 
-## [3. Scylla 19.02.2022](https://mega.nz/file/nIQUGS5K#vB3awsfe1dXshjgSVorIMJolTCuuEsDsvhouV3qaX5A)
+## [3. Scylla 19.02.2022](https://cdn.discordapp.com/attachments/1125160099263025353/1126184496283263128/-__scylla_19.02.2022.osk)
 
 ![](https://sun3-20.userapi.com/impg/67FgV8g_DS0jdbpMCs4Z8KnO31Mo5B6fuc7EPw/LkYr7xEsiZg.jpg?size=1920x1080&quality=96&sign=4361df45258fee4e1d334db39b296dd9&type=album)
 
-## [4. Azer8dusk](https://mega.nz/file/zUwCAKhb#wmPP08eLuSa7G7_Q7r8reM6Ey2UEM8fNx1MpfYQAk7M)
+## [4. Azer8dusk](https://cdn.discordapp.com/attachments/1125160099263025353/1126184648532308051/azer8dusk.osk)
 
 ![](https://sun9-69.userapi.com/impg/n7yfu_3FRskm2SNkWhdb6JyaKqeLmdsYXg6nFA/u4PPWsEgCms.jpg?size=1920x1080&quality=96&sign=7c51556837b0b1e86b8e3cc01ab70bba&type=album)
 
