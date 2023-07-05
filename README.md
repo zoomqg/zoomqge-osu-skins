@@ -70,7 +70,7 @@
 
 ## [17. romandenys](https://cdn.discordapp.com/attachments/1125160099263025353/1126185752234045610/romandenys.osk)
 
-![](http://osu.ppy.sh/ss/18686517/2e4a)
+![](https://osu.ppy.sh/ss/18686535/0380)
 
 ## [18. tekkitovaxeicookieziktotoeshe](https://cdn.discordapp.com/attachments/1125160099263025353/1126186187195961384/tekkitovaxeicookieziktotoeshe.osk)
 
