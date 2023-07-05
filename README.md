@@ -32,14 +32,14 @@
 
 ![](https://i.imgur.com/DOTiJtk.jpeg)
 
-## [8.-_JTB_x_kano_Asuka_Kurashina_Edit](https://cdn.discordapp.com/attachments/1125160099263025353/1126184800290623578/-_JTB_x_kano_Asuka_Kurashina_Edit.osk)
+## [8. -_JTB_x_kano_Asuka_Kurashina_Edit](https://cdn.discordapp.com/attachments/1125160099263025353/1126184800290623578/-_JTB_x_kano_Asuka_Kurashina_Edit.osk)
 
 ![](https://osu.ppy.sh/ss/18686480/218e)
 
-## [8.tekkitocookiezi24](https://cdn.discordapp.com/attachments/1125160099263025353/1126184805202141204/tekkitocookiezi24.osk)
+## [9. tekkitocookiezi24](https://cdn.discordapp.com/attachments/1125160099263025353/1126184805202141204/tekkitocookiezi24.osk)
 
 ![](https://osu.ppy.sh/ss/18686472/b500)
 
-## [8.gasha_singletap](https://cdn.discordapp.com/attachments/1125160099263025353/1126184817478860851/gasha_singletap.osk)
+## [10. gasha_singletap](https://cdn.discordapp.com/attachments/1125160099263025353/1126184817478860851/gasha_singletap.osk)
 
 ![](http://osu.ppy.sh/ss/18686483/bf74)
