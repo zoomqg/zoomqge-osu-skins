@@ -4,34 +4,42 @@
 
 ### создал - @molexxq, пишите в дискорд если нет какого-то скина
 
-## [1. dddx15dt_mix](https://mega.nz/file/zcwSBbiL#33h5hgaWOC80hEoGiC5AwvsuH6-gijg3IpqnY1j425A)
+## [1. dddx15dt_mix](https://cdn.discordapp.com/attachments/1125160099263025353/1126184222319706122/dddx15dt_mix.osk)
 
 ![](https://osu.ppy.sh/ss/18686440/bfe5)
 
-## [2. -Neferpitou Aristia Edit](https://mega.nz/file/OZA1UbBZ#aybLqbYLzeNpU5AW-5_77ez1jzrFr2S_soX_6LhuQ38)
+## [2. -Neferpitou-Aristia_Edit](https://cdn.discordapp.com/attachments/1125160099263025353/1126184410077724833/-Neferpitou-Aristia_Edit.osk)
 
 ![](https://osu.ppy.sh/ss/18686444/44dd)
 
-## [3. Scylla 19.02.2022](https://mega.nz/file/nIQUGS5K#vB3awsfe1dXshjgSVorIMJolTCuuEsDsvhouV3qaX5A)
+## [3. -scylla_19.02.2022](https://cdn.discordapp.com/attachments/1125160099263025353/1126184496283263128/-__scylla_19.02.2022.osk)
 
 ![](https://osu.ppy.sh/ss/18686446/aef6)
 
-## [4. azer8dusk](https://mega.nz/file/zUwCAKhb#wmPP08eLuSa7G7_Q7r8reM6Ey2UEM8fNx1MpfYQAk7M)
+## [4. azer8dusk](https://cdn.discordapp.com/attachments/1125160099263025353/1126184648532308051/azer8dusk.osk)
 
 ![](https://osu.ppy.sh/ss/18686449/e395)
 
-## [5. tekkito2](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [5. tekkito2](https://cdn.discordapp.com/attachments/1125160099263025353/1126184720212963449/tekkito2.osk)
 
 ![](https://osu.ppy.sh/ss/18686452/dcaa)
 
-## [6. Kanoharada V3 Clear (tekkito interface)](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [6. kanoharadav3_clear (tekkito interface)](https://cdn.discordapp.com/attachments/1125160099263025353/1126184720212963449/tekkito2.osk)
 
 ![](https://osu.ppy.sh/ss/18686466/95ad)
 
-## [7. tekkitovaxeidt](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [7. tekkitovaxeidt](https://cdn.discordapp.com/attachments/1125160099263025353/1126184770834026536/tekkitovaxeidt.osk)
 
 ![](https://i.imgur.com/DOTiJtk.jpeg)
 
-## [8. JTB x Kano  Asuka Kurashina Edit](https://mega.nz/file/TQJQ2ZJI#EMrg8I5vhgf8vFE8aqaW8EJxj8VZoA0R0ohXEGiJ8eo)
+## [8.-_JTB_x_kano_Asuka_Kurashina_Edit](https://cdn.discordapp.com/attachments/1125160099263025353/1126184800290623578/-_JTB_x_kano_Asuka_Kurashina_Edit.osk)
 
 ![](https://osu.ppy.sh/ss/18686480/218e)
+
+## [8.tekkitocookiezi24](https://cdn.discordapp.com/attachments/1125160099263025353/1126184805202141204/tekkitocookiezi24.osk)
+
+![](https://osu.ppy.sh/ss/18686472/b500)
+
+## [8.gasha_singletap](https://cdn.discordapp.com/attachments/1125160099263025353/1126184817478860851/gasha_singletap.osk)
+
+![](http://osu.ppy.sh/ss/18686483/bf74)
