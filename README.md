@@ -80,7 +80,7 @@
 
 ![](http://osu.ppy.sh/ss/18686522/2d77)
 
-## [20. RAFIS_RIGHT_VERSION](https://cdn.discordapp.com/attachments/1125160099263025353/1126186333837197413/RAFIS_RIGHT_VERSION.osk)
+## [20. RAFIS_RIGHT_VERSION](https://zoomqge.s-ul.eu/t3OL4azX)
 
 ![](http://osu.ppy.sh/ss/18686524/4d9a)
 
