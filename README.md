@@ -106,4 +106,4 @@
 
 ## [26. Pinguinzi GODMODE](https://zoomqge.s-ul.eu/VnnUWoji)
 
-![](https://osu.ppy.sh/ss/18868985/c6d1)
+![](https://osu.ppy.sh/ss/18868986/2315)
