@@ -95,3 +95,15 @@
 ## [23. tekkitoRafaelendro](https://zoomqge.s-ul.eu/LZibGVWQ)
 
 ![](https://i.imgur.com/sVvwWka.png)
+
+## [24. netwhynot_aristia](https://zoomqge.s-ul.eu/IeTaudZJ)
+
+![](https://osu.ppy.sh/ss/18868975/398c)
+
+## [25. Rafis elohere mathi Alfie ver](https://zoomqge.s-ul.eu/V1NXRbQs)
+
+![](https://osu.ppy.sh/ss/18868979/740b)
+
+## [26. Pinguinzi GODMODE](https://zoomqge.s-ul.eu/VnnUWoji)
+
+![](https://osu.ppy.sh/ss/18868985/c6d1)
