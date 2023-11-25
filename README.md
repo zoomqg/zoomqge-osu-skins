@@ -24,7 +24,7 @@
 
 ![](https://i.imgur.com/sh3zYPn.jpeg)
 
-## [6. kanoharadav3_clear (tekkito interface)](https://cdn.discordapp.com/attachments/1125160099263025353/1126184720212963449/tekkito2.osk)
+## [6. kanoharadav3_clear (tekkito interface)](https://zoomqge.s-ul.eu/8HOP5CFy)
 
 ![](https://osu.ppy.sh/ss/18686466/95ad)
 
