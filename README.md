@@ -111,3 +111,6 @@
 ## [27. kinda vaxei](https://zoomqge.s-ul.eu/5EKblakR)
 
 ![](https://i.imgur.com/h4Sgkgu.png)
+
+## [28. zibi grey](https://zoomqge.s-ul.eu/WfOdj8Jd)
+![](https://i.imgur.com/tXYHbIn.png)
