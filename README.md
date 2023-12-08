@@ -1,5 +1,3 @@
-![изображение](https://github.com/zoomqg/zoomqge-osu-skins/assets/138513672/43ae6cf7-5377-407a-98d6-72a5aae9be1d)# zoomqge's skins
-
 ## Здесь собраны все скины, которые использую я)
 
 ### спс молексу что собрал скины
