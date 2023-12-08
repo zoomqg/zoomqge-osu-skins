@@ -1,4 +1,4 @@
-# zoomqge's skins
+![изображение](https://github.com/zoomqg/zoomqge-osu-skins/assets/138513672/43ae6cf7-5377-407a-98d6-72a5aae9be1d)# zoomqge's skins
 
 ## Здесь собраны все скины, которые использую я)
 
@@ -107,3 +107,7 @@
 ## [26. Pinguinzi GODMODE](https://zoomqge.s-ul.eu/VnnUWoji)
 
 ![](https://osu.ppy.sh/ss/18868986/2315)
+
+## [27. kinda vaxei](https://zoomqge.s-ul.eu/5EKblakR)
+
+![](https://i.imgur.com/h4Sgkgu.png)
